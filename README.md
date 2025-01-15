@@ -1,3 +1,3 @@
 # mashedpotatos
-- Very yammie
+tomato
 Xuyen likes mash potatos
